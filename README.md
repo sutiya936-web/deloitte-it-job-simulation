@@ -31,7 +31,7 @@ Completed Deloitte’s Virtual IT Job Simulation through Forage, gaining exposur
 Successfully completed practical business and IT tasks designed to simulate real-world Deloitte technology consulting and cybersecurity workflows.
 
 ## Certificate
-[View Certificate] (https://www.theforage.com/completion-certificates/9PBTqmSxAf6zZTseP/udmxiyHeqYQLkTPvf_9PBTqmSxAf6zZTseP_69bf9e0dc90c0297da7905ef_1778094568886_completion_certificate.pdf?raw=1)
+[View Certificate] (https://www.theforage.com/completion-certificates/9PBTqmSxAf6zZTseP/udmxiyHeqYQLkTPvf_9PBTqmSxAf6zZTseP_69bf9e0dc90c0297da7905ef_1778094568886_completion_certificate.pdf?raw=1
 (deloitte-certificate-neha.jpg)
 
 ## Author
